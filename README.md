@@ -1,1 +1,1 @@
-# QSS_F25
+# Welcome to QSS 45: Fall Edition!
